@@ -6,4 +6,4 @@ The red unicorns like Pizza.
 Can you add some other animals?
 Rabbits like Spinich.
 Horses love Apple (although they're very bad for them!)
-Humans just love anything bad for them.
+Humans just love anything bad for them. Ah but life's too short to worry about that :p
